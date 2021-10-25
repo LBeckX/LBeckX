@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @LBeckX
 - 🤗 You can find me here: https://www.unitgreen.com/
-- 🟥 CashPlayers is my Passion https://www.cashplayers.gg/
+- 🟥 CashPlayers is my passion https://www.cashplayers.gg/
