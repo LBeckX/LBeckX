@@ -1,3 +1,5 @@
 - 👋 Hi, I’m @LBeckX
+- 🔭 Read less and contact more!
+- 🛣️ "Either we find a way or we make one" --Hannibal
 - 🤗 You can find me here: https://www.unitgreen.com/
 - 🟥 CashPlayers is my passion https://www.cashplayers.gg/
